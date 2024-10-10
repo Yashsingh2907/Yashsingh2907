@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yashsingh2907
+- 👀 I’m interested in exploring and learning software tools like Power BI, MySQL, Python, Advanced Excel, etc. 
+- 🌱 I’m currently learning Advanced excel and also trying to some guided projects side by side to built my portfolio and learn as well...
+- 📫 How to reach me, you can reach me through my email - yashsingh29072004@gmail.com or linkedin - https://www.linkedin.com/in/yashsingh2907
+- 😄 Pronouns: Obviously He/Him 
